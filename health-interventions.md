@@ -26,22 +26,3 @@
 | Raw Garlic and Onion | | | | | | | | | | | | | | | | | | |
 | Nutritional Yeast | | | | [Crohn's Disease](https://nutritionfacts.org/video/is-nutritional-yeast-healthy-for-everyone/) | | | | | | | | | | | | | | |
 | --- | --- | --- | --- | ---  | ---  | --- | ---  | ---  | --- | --- | --- | --- | ---  | --- | --- | --- | --- | ---  |
-
-combo statin+exercise
-
-Cumin
-Turmeric
-Curcumin
-matcha tea
-hibiscus tea
-reduce sodium
-partial potassium salt
-Replace dairy with soy milk
-sterols+soy+viscous fiber
-Brazil nuts
-Phytosterols
-Amla powder
-flax seed
-chia seed
-raw garlic and onion
-nutritional yeast
